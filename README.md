@@ -2,7 +2,7 @@
 
 >🎨🖌️🖼️: I’m interested in arts
 
->✧˖°.🎧📖:I’m currently learning in GLC
+>✧˖°.🎧📖:I’m currently studying in GLC
 
 > ᯓᡣ𐭩: How to reach me: g-mail/via messenger 
 
